@@ -12,4 +12,5 @@ Meu nome é Vinicius Oliveira
 
 @vinix.fxp4
 
-![](https://media1.tenor.com/m/UnJMV42AyGgAAAAC/shift.gif)
+![image](https://github.com/user-attachments/assets/18b99f67-03b4-474e-9e3d-8948e6cf7111)
+
